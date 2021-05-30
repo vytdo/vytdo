@@ -1,4 +1,4 @@
-🌐 Portfolio - vytdo.com 🌐
+🌐 Portfolio - www.vytdo.com 🌐
 
 📝Linkedin - https://www.linkedin.com/in/vy-do-256030213/ 📝
 
