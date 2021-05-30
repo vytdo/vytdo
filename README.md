@@ -4,4 +4,6 @@
 
 ✨ Studying - Bachelor of Computer Science ✨
 
+💥 Major - Software Development 💥
+
 ⚡️ University - Swinburne ⚡️
